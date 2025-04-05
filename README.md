@@ -1,0 +1,1 @@
+# beautiglobal.official2025
